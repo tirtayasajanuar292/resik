@@ -1,2 +1,0 @@
-# resik
-desti min
