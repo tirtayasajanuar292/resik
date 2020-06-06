@@ -1,0 +1,2 @@
+# resik
+desti min
